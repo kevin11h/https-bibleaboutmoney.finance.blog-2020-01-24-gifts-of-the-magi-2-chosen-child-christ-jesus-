@@ -24,16 +24,27 @@ who will be the shepherd of My people Israel.’b ”
 
 #### REFERENCES & REFLECTIONS
 [1] https://biblehub.com/matthew/2-11.htm
+
 [2] https://aleteia.org/2018/01/07/what-do-the-3-gifts-of-the-magi-symbolize/
+
 [3] https://aleteia.org/2018/01/07/why-did-the-magi-bring-gifts-of-gold-frankincense-and-myrrh/
+
 [4] https://en.wikipedia.org/wiki/Biblical_Magi
+
 [5] https://reasonsforhopejesus.com/significance-of-the-three-kings-gifts/
+
 [6] https://www.gotquestions.org/gold-frankincense-myrrh.html
+
 [7] https://www.gotquestions.org/three-wise-men.html
+
 [8] John 19:39 https://biblehub.com/commentaries/john/19-39.htm
+
 [9]  Psalm 72:11
+
 [10] https://www.amazon.com/Holy-Gifts-Meaning-Frankincense-Myrrh/dp/1462116442
+
 [11] https://www.guidedspace.com/single-post/2017/10/07/The-Miracle-Prayer
+
 [12] https://www.reformedworship.org/article/september-1992/canticles-christmas-singing-songs-zechariah-mary-angels-and-simeon
 
 # [ISAIAH 9:6 NEW LIVING TRANSLATION (NLT)](https://www.biblegateway.com/passage/?search=Isaiah+9%3A6&version=NLT)
