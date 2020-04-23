@@ -59,3 +59,11 @@ Wonderful Counselor,[a] Mighty God,
 
 ![](https://i0.wp.com/dustoffthebible.com/wp-content/uploads/2016/12/Isaiah-9.6-unto-us-a-child-is-born.jpg?zoom=2)
 [Wonderful Counselor,  Mighty God, Everlasting Father, Prince of Peace.](https://www.biblegateway.com/passage/?search=Isaiah+9%3A6&version=NLT)
+
+
+
+# God's Grace and Greed of Man - Lord's Last Supper - Psalms Prophecy Fulfilled
+Luke 21 22
+
+Psalm 90-91 Rescue and Reward - Psalm of Moses - Prophecy Matthew 4
+# https://www.biblegateway.com/passage/?search=judges+1%3A1-2%3A9%3Bluke+21%3A29-22%3A13%3Bpsalm+90%3A1-91%3A16%3Bproverbs+13%3A24-25&version=NLT
